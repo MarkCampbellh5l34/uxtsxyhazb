@@ -1,7 +1,9 @@
-![resoft_image](https://github.com/MarkCampbellh5l34/uxtsxyhazb/assets/149399986/0f603070-907e-477e-9f40-5b5408e95d49)
-## Description 😊
+![resoft_image](https://github.com/MarkCampbellh5l34/uxtsxyhazb/assets/149399986/261c373b-606a-427b-8da8-c45d8b7b0b76)
 
-🔍 Your long wait is over! We have found the perfect software you have been searching for. Get ready for an amazing experience using this program.
+## Description 😄
+
+🔍 Your patience has been rewarded! We have found the program you have been searching for so long. Immerse yourself in a unique experience using this software and enjoy every minute.
+
 ## Installation instructions 📥
 
 • To install the new software, find the "Releases" section.
