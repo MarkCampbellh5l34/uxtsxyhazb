@@ -1,1 +1,1 @@
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=100&pause=1000&color=00F7A2&background=060606&random=false&width=1920&height=1080&lines=Avalible+for+free+on+resoft.life)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=100&pause=1000&color=00F7A2&background=060606&random=false&width=1920&height=540&lines=Avalible+for+free+on+resoft.life)](https://git.io/typing-svg)
